@@ -12,3 +12,5 @@ If you'd like to hear before downloading, here are SoundCloud previews:
 [Action Preview 1](https://soundcloud.com/good_day_sir/action-preview-1)
 
 [Light Preview 1](https://soundcloud.com/good_day_sir/light-preview-1)
+
+[Dark Preview 1](https://soundcloud.com/good_day_sir/dark-preview-1)
