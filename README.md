@@ -7,6 +7,6 @@ All of these clips were made on GarageBand, using a combination of royalty-free 
 
 There are no watermarks nor copyright restrictions on this music. Have at it :]
 
-If you'd like to hear before downloading:
+If you'd like to hear before downloading, here are SoundCloud previews:
 
-<iframe width="100%" height="100" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/168251280&amp;auto_play=false&amp;hide_related=false&amp;show_comments=true&amp;show_user=true&amp;show_reposts=false"></iframe>
+[Action Preview 1](https://soundcloud.com/good_day_sir/action-preview-1)
