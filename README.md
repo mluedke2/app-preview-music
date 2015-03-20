@@ -11,15 +11,23 @@ If you'd like to hear before downloading, here are SoundCloud previews:
 
 [Action Preview 1](https://soundcloud.com/good_day_sir/action-preview-1)
 
+[Action Preview 3](https://soundcloud.com/good_day_sir/action-preview-3)
+
 [Chill Preview 1](https://soundcloud.com/good_day_sir/chill-preview-1)
 
 [Chill Preview 2](https://soundcloud.com/good_day_sir/chill-preview-2)
+
+[Chill Preview 3](https://soundcloud.com/good_day_sir/chill-preview-3)
+
+[Chill Preview 4](https://soundcloud.com/good_day_sir/chill-preview-4)
 
 [Cool Preview 1](https://soundcloud.com/good_day_sir/cool-preview-1)
 
 [Dark Preview 1](https://soundcloud.com/good_day_sir/dark-preview-1)
 
 [Dark Preview 2](https://soundcloud.com/good_day_sir/dark-preview-2)
+
+[Dark Preview 4](https://soundcloud.com/good_day_sir/dark-preview-4)
 
 [Happy Preview 1](https://soundcloud.com/good_day_sir/happy-preview-1)
 
